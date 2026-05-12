@@ -1,4 +1,4 @@
-#  
+#  Experience attack on titan revolution like never before with elite Script for attack on titan revolution, the #1 Script. Includes infinite resources
 
 
 
